@@ -1,4 +1,6 @@
 ## Hi, I'm Deuxsss 👋
+
+# Languages & Tools 👨‍💻 🛠:
 </br>
 
 <p align="center">
